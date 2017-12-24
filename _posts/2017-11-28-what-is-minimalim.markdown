@@ -8,9 +8,9 @@ title: What is Minimalism ?
 Minimalism is a lifestyle of less items in your life so that you
 can focus on more valuable aspects of the life itself.
 
-In our developed capitalist countries is easy to obtain stuff that
-seems like a good idea at the time. In some point we discover we don't
-immediately need those things so we store them in closets for "someday".
+In our developed capitalist countries is easy to obtain stuff.
+They seems like a good idea at the time but in some point we discover we don't
+need those things so we store them in closets for "someday".
 
 Over time they create clutter in our closets and we need bigger closet.
 Over time there is not enough space in our home for our big closets full of items so we need a bigger home. Over time we actually rent a self storage
