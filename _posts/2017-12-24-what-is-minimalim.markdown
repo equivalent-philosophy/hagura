@@ -43,8 +43,11 @@ to a bare minimum helps him to achieve this.
 
 Someone may have referenced *Steve Jobs* (former CEO of Apple) as
 minimalist as he was wearing same outline of cloths for several years.
+Annoyed that he needs to spend lot of time choosing cloths every morning
+he decided to limit his option to same choice of cloths for every day.
 
 ![Steve Jobs cloths](http://guruprasad.net/wp-content/uploads/2013/07/steve-turtleneck.jpg)
+
 
 
 So who is minimalist?
