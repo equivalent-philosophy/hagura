@@ -34,7 +34,7 @@ Yes better life with less stuff and less clutter.
 Some of you may heard of *Colin Wright* as an example of minimalist. 
 He is author of the blog
 [http://exilelifestyle.com](http://exilelifestyle.com) and well known
- for owning only around [51 items](http://exilelifestyle.com/51/).
+ for owning around [51 items](http://exilelifestyle.com/51/).
 
 He lives in different country for no more than 6 months and by keeping his possessions
 to a bare minimum helps him to achieve this.
@@ -46,9 +46,6 @@ minimalist as he was wearing same outline of cloths for several years.
 
 ![Steve Jobs cloths](http://guruprasad.net/wp-content/uploads/2013/07/steve-turtleneck.jpg)
 
-He was annoyed that he had to spend time every day picking what to  wear so
-he decided  to wear same option of cloths every day. He limited his choices of
-stuff in his closet.
 
 So who is minimalist?
 
