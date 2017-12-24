@@ -1,5 +1,6 @@
 # Philosophy blog
 
+http://minimalism.eq8.eu
 
 
 ### About code
