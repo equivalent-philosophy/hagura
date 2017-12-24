@@ -56,7 +56,7 @@ You own only stuff you find valuables and brings you true joy.
 
 If you need  laptop own a laptop. If
 you want to wear a leather jacket wear a leather jacket. If you want to
-buy expensive jeans buy them. Just be honest with yourself on weather
+buy expensive jeans buy them. Just be honest with yourself on whether
 you will wear them often with joy or only once because they are too
 tight.
 
@@ -68,7 +68,7 @@ for day to day use and don't buy cloths every week just because it's a
 new fashion season.
 
 Minimalists are **pragmatic**. They don't buy stuff out of impulse.
-They research before they buy and really thing if it is something they
+They research before they buy and really think if it is something they
 need/want in their life.
 
 It's not a competition on who owns the least amount of stuff !
@@ -81,5 +81,6 @@ anyway you want (or don't call it at all) as long as it helps you.
 ### Related links
 
 * https://minimalismfilm.com
-* https://www.theminimalists.com
 * https://www.youtube.com/watch?v=w7rewjFNiys
+* https://www.youtube.com/watch?v=GgBpyNsS-jU
+* https://www.theminimalists.com
